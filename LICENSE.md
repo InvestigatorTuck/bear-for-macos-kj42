@@ -1,4 +1,4 @@
-
+top Macro for Bear for macOS - OCR scanning and goal tracking offers the most advanced Bear for macOS macro, with OCR scanning and goal tracking. Ideal for professionals.
 
 
 
